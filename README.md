@@ -1,0 +1,1 @@
+# Patenet-google-oszcz-dzaczyk-procesor-do-patent-w
